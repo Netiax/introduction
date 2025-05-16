@@ -3,7 +3,7 @@
 ## 🇨🇿  Czech Republic (UTC +2)
 ## ♀  She/They/It
 ## ⚧  Transfem
-## ❤  Pansexual / Bisexual (taken) 
+## ❤  Pansexual / Bisexual (single)
 ## 😖  Silly-coded :3
 ## 🎂 Birthday: 9th January
 ---
